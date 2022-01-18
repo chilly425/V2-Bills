@@ -43,7 +43,7 @@ Proposed by: *President pro tempore wierdo25*
 
 &nbsp;&nbsp;&nbsp; (b) The 'Firestone National Guard', shall be defined as: <https://www.roblox.com/groups/2803372/Firestone-National-Guard#!/about>
 
-&nbsp;&nbsp;&nbsp; (c) The 'Firestone Department of Homeland Security', shall be defined as: <https://www.roblox.com/groups/2803372/Firestone-National-Guard#!/about>
+&nbsp;&nbsp;&nbsp; (c) The 'Firestone Department of Homeland Security', shall be defined as: <https://www.roblox.com/groups/2803370/Firestone-Department-of-Homeland-Security#!/about>
 
 &nbsp;&nbsp;&nbsp; (d) The 'Firestone Bureau of Investigation', shall be defined as: <https://www.roblox.com/groups/3411434/Firestone-Bureau-of-Investigation#!/about>
 
